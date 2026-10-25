@@ -209,4 +209,4 @@ Scorched 3D is available as a full free version with all features and updates in
 Don't miss out on the fun! Download **Scorched 3D** today and engage in thrilling tank battles like never before!
 
 ---
-**Last updated:** 2026-10-25 17:29:25 UTC
+**Last updated:** 2026-10-25 20:34:53 UTC
